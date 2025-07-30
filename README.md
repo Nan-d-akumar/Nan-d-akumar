@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **nandusangeeth@gmail.com**
 
-- <img align="right" height="150" src="https://media.tenor.com/az5VPJJfMiwAAAAi/luckystar-dance.gif"  />
+
+- <img align="right" height="150" src="https://media.tenor.com/cJtDhl2-MP0AAAAi/goku-dragon-ball.gif"  />
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
